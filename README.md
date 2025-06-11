@@ -1,0 +1,1 @@
+# pedatrent_assets
